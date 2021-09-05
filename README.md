@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LazyyNguyen
-- 👀 I’m interested in read book
+- 👀 I’m interested in reading books
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on school
 - 📫 How to reach me linh.nguyenthikhanh02@gmail.com
